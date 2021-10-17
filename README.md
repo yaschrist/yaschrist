@@ -26,5 +26,5 @@ Hi, I'm Yasmin Christ 👋
   </center>
   </div>
   
-
+![Snake animation](https://github.com/yaschrist/blob/output/github-contribution-grid-snake.svg)
  
