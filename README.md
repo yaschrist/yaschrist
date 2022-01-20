@@ -1,7 +1,7 @@
 Hi, I'm Yasmin Christ 👋
 
 
-- 📓 I’m currently studying and applying for college.
+- 📓 I’m currently studying.
 - 😄 Pronouns: she/her
 - ⚡ 17 years old
 
