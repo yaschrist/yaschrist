@@ -1,9 +1,9 @@
 Hi, I'm Yasmin Christ 👋
 
 
-- 📓 I’m currently studying.
+- 📓 I’m currently studying ADS at FATEC Ourinhos.
 - 😄 Pronouns: she/her
-- ⚡ 17 years old
+- ⚡ 18 years old
 
 <br>
 
