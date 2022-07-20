@@ -4,6 +4,7 @@ Hi, I'm Yasmin Christ 👋
 - 📓 I’m currently studying ADS at FATEC Ourinhos and working as Teacher.
 - 😄 Pronouns: she/her
 - ⚡ 18 years old
+- 👉🏻 https://yaschrist.github.io/portfolio/
 
 <br>
 
